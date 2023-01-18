@@ -1,7 +1,7 @@
 - 💪🏽 Hello, I’m @MagnoGarcez
+- 🌎 From Brazil
 - 🎓 Undergraduate student
 - 💻 Computer Networks
-- 🌎 From Brazil
 
 <br>
 
