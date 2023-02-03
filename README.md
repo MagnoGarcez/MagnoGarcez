@@ -1,6 +1,6 @@
 - 💪🏽 Hello, I’m @MagnoGarcez
-- 🌎 From Brazil
 - 🎓 Undergraduate student
+- 🌎 From Brazil
 - https://www.linkedin.com/in/cristhiano-garcez/
 <br>
 
